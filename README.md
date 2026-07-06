@@ -10,6 +10,6 @@
 
   
 
-![](https://file.garden/aNy90GYmaWI-Okj1/b210f4ea.gif) [rentry]() ♡ [ata]() ♡ [listo]() ![](https://file.garden/aNy90GYmaWI-Okj1/b210f4ea.gif) 
+![](https://file.garden/aNy90GYmaWI-Okj1/b210f4ea.gif) [rentry]() ♡ [ata](https://doctorlouiefan.atabook.org/) ♡ [listo](https://listography.com/submissiveomega?m=0136955905) ![](https://file.garden/aNy90GYmaWI-Okj1/b210f4ea.gif) 
  
 <img src="https://graphic.neocities.org/tumblr_inline_p74znb7n6Y1rsi4si_500.gif" width="45">
