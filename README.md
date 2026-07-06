@@ -6,7 +6,7 @@
 
  
 <div align="center">  
-<img src="https://file.garden/aNy90GYmaWI-Okj1/line_lace1_white1-2.gif" width="45%">
+<img src="https://file.garden/aNy90GYmaWI-Okj1/line_lace1_white1-2.gif" width="50%">
 
 
 
@@ -14,4 +14,4 @@
 
 ![](https://file.garden/aNy90GYmaWI-Okj1/b210f4ea.gif) [rentry]() ♡ [ata]() ♡ [listo]() ![](https://file.garden/aNy90GYmaWI-Okj1/b210f4ea.gif) 
  
-![](https://graphic.neocities.org/tumblr_inline_p74znb7n6Y1rsi4si_500.gif)
+<img src="https://graphic.neocities.org/tumblr_inline_p74znb7n6Y1rsi4si_500.gif" width="45">
